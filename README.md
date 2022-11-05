@@ -1,0 +1,1 @@
+# shokusainomiyako-cnpatch
